@@ -1,0 +1,6 @@
+- [https://medium.com/@sophiakalininat](https://medium.com/@sophiakalininat)
+- [https://www.quora.com/profile/Sophia-Kalininat](https://www.quora.com/profile/Sophia-Kalininat)
+- [https://www.reddit.com/user/Consistent-Rhubarb31/](https://www.reddit.com/user/Consistent-Rhubarb31/)
+- [https://www.youtube.com/channel/UCawle2FBP3YGH5k6P4Km3Bw](https://www.youtube.com/channel/UCawle2FBP3YGH5k6P4Km3Bw)
+- [https://x.com/sophiakalininat](https://x.com/sophiakalininat)
+- [http://sophiakalininat.github.io/](http://sophiakalininat.github.io/)
