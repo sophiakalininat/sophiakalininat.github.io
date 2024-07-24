@@ -4,3 +4,4 @@
 - [https://www.youtube.com/channel/UCawle2FBP3YGH5k6P4Km3Bw](https://www.youtube.com/channel/UCawle2FBP3YGH5k6P4Km3Bw)
 - [https://x.com/sophiakalininat](https://x.com/sophiakalininat)
 - [http://sophiakalininat.github.io/](http://sophiakalininat.github.io/)
+- [https://www.reddit.com/user/SophiaKalininat/](https://www.reddit.com/user/SophiaKalininat/)
